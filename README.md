@@ -140,6 +140,6 @@ Now I run **[AlphaQuantix Analytics](https://alphaquantixanalytics.com)** — a 
 
 I'm always open to interesting projects and collaborations.
 
-**[🌐 alphaquantixanalytics.com](https://alphaquantixanalytics.com)** · **[💼 LinkedIn](https://www.linkedin.com/in/sumin-pillai-a18661177/)** · **[📧 suminpillai@gmail.com](mailto:suminpillai@gmail.com)** · **[📱 +91 8861526690](https://wa.me/918861526690)**
+**[🌐 alphaquantixanalytics.com](https://alphaquantixanalytics.com)** · **[💼 LinkedIn](https://www.linkedin.com/in/sumin-pillai-a18661177/)** · **[📧 suminpillai@gmail.com](mailto:suminpillai@gmail.com)** · 
 
 </div>
